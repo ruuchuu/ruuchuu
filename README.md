@@ -1,0 +1,6 @@
+- 👋 Hi, I’m ruuchuu
+- 👀 I’m interested in fnf mods and im working on a few and im starting to get overworked!
+- 🌱 I’m currently learning how to fucking make music!
+- 💞️ I’m looking to collaborate on nothing unless u have something dm me!
+- 📫 How to reach me from discord, ruu.#9008 and you can join my server to if you want
+- 📧 My server! https://discord.gg/7YvXrTTUVn JOIN OR ILL WAT YOUR LEGS (jk pls dont call the police)
